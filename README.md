@@ -1,5 +1,5 @@
 # utkarsh-ub
-# [⚡Utkarsh Bhaskar⚡](https://devraj-chatribin.netlify.app/)
+# [⚡Utkarsh Bhaskar⚡]
 **Web Developer || Founder @Taruguardians(N.G.O) || Graphic Designer || SSB recommended**
 
 <p align="left">
